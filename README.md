@@ -12,6 +12,6 @@
 
 💬 Explore meus repositórios para encontrar projetos interessantes, desde aplicações práticas até recursos educacionais, todos desenvolvidos com dedicação e expertise.
 
-📫 Quer trocar ideias ou colaborar em projetos? Não hesite em me contatar! Você pode me encontrar no Instagram @oigabrielm ou no Email gabrielmariano@prof.educacao.sp.gov.br.
+📫 Quer trocar ideias ou colaborar em projetos? Não hesite em me contatar! Você pode entrar em contato atráves do Email gabrielmariano@prof.educacao.sp.gov.br.
 
 🙏 Agradeço por visitar meu perfil! Estou animado para conectar com colegas, alunos e entusiastas da tecnologia e trabalhar juntos para criar um futuro mais brilhante.
